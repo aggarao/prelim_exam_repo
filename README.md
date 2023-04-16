@@ -1,1 +1,5 @@
 # prelim_exam_repo
+SOFTWARE ENGINEERING
+BSCS 3A
+RENATO AGGARAO JR 
+Sir. KING
